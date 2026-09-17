@@ -6,3 +6,16 @@ Ok Go
 
 https://github.com/user-attachments/assets/9112c523-98ae-4521-9fb7-b6f03621a21c
 
+
+depois de uma
+wendrelldceothe66@gmail.com
+você está procurados
+você tem uma loja de móveis ou loja
+ZEST1 o que é alta demais não é uma
+como funciona mas eu havia falado anteriormente
+geometry bom e ganhe
+# minecraft-nod
+(Download)
+(Baixar)
+(Instalar)
+(Abrir)
